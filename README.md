@@ -1,0 +1,2 @@
+# repositoriorichi
+github page
